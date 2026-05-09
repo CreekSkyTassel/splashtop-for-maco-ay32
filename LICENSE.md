@@ -1,4 +1,4 @@
-
+Enhance Splashtop for macOS with exclusive Splashtop for macOS Integration | session-recording + session-management, the #1 integration. Includes session-recording and
 
 
 
